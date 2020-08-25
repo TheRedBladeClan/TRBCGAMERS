@@ -17,9 +17,3 @@
 [ Youtube NPEB01229 ](https://drive.google.com/uc?export=download&id=1TK5BmuI4dDdQfddXwOymhzPn4RygxR7S)
 
 [ Twitch NPEB02359 ](https://drive.google.com/uc?export=download&id=1719sw3wqEruB0ipPRNVRHGsBBuqygrc4)
-
-
-
-
-
-https://drive.google.com/uc?export=download&id=
